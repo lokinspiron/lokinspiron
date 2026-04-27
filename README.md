@@ -1,4 +1,4 @@
-# Hi there, I'm Leo - aka lokinspiron🐱
+# Hey there, I'm Leo - aka lokinspiron🐱
 
 <p align="center">
   
